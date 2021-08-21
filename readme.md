@@ -5,7 +5,7 @@ java，前端，python，go，c#，测试，大数据，ai
 
 it视频😇仅zfb😇招代理 
 
-v: heyehehj6666 
+~~v: heyehehj6666 ~~
 
 qq: 3551819017
 
@@ -14,18 +14,13 @@ qq: 3551819017
 
 ​**视频资料均来自网络收集和朋友分享，如有侵权，联系删除。**
 
----
-
-**微信客服：heyehehj666**<br />**微信客服：heyehehj666    欢迎咨询**
-
----
 
 **QQ客服：3551819017  **<br />**QQ客服：3551819017      欢迎咨询**<br />**​**<br />
 
 ---
 
 <a name="sZonF"></a>
-## 2021年最新IT课程清单，持续更新！ ![44__e7288c5b8518322d41336f3c153b833f_78b92f4133b29f10073d7cb1df12b26d.png](https://cdn.nlark.com/yuque/0/2021/png/22229143/1627613113081-68300e0c-6b65-4bab-92b8-bb8e10f8f486.png#clientId=u453c75fb-fcb8-4&from=paste&height=87&id=ucdb3475b&margin=%5Bobject%20Object%5D&name=44__e7288c5b8518322d41336f3c153b833f_78b92f4133b29f10073d7cb1df12b26d.png&originHeight=520&originWidth=400&originalType=binary&ratio=1&size=81564&status=done&style=none&taskId=u229d0ab8-370a-4fde-9300-67b0f68e52e&width=67)![77__84f6545339ae1aebd84c7ac89748d0bf_b4f128b61c4445197eab941a4f5f7f5b.png](https://cdn.nlark.com/yuque/0/2021/png/22229143/1627613382121-44c99775-f211-4bac-bfce-ad50bec401e7.png#clientId=u453c75fb-fcb8-4&from=paste&height=87&id=ufd231c9a&margin=%5Bobject%20Object%5D&name=77__84f6545339ae1aebd84c7ac89748d0bf_b4f128b61c4445197eab941a4f5f7f5b.png&originHeight=520&originWidth=400&originalType=binary&ratio=1&size=86128&status=done&style=none&taskId=ub8de2c50-3614-4caa-989c-bba91466486&width=67)（点击放大😊）
+## 2021年最新IT课程清单，持续更新！
 
 
 <a name="wa7NU"></a>
